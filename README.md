@@ -3,5 +3,5 @@
 
 📌 I'm searching **Tech** and **AI** news 🧠
   ***
-📌 Think ***simple*** ✅
+📌 ✅
   
